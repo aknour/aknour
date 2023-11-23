@@ -17,7 +17,7 @@ I'm dedicated to leveraging data to innovate and drive progress in healthcare. M
 
 ## Connect With Me 📫
 - Reach out via [Email](mailto:aknour@berkeley.edu)
-- Connect on https://www.linkedin.com/in/ahmnour/
-- Explore my https://linktr.ee/aknour2112
+- Connect on [LinkedIn](https://www.linkedin.com/in/ahmnour/)
+- Explore my [Portfolio](https://linktr.ee/aknour2112)
 
 If my expertise aligns with your interests or projects, let's chat about potential collaborations in healthcare.
